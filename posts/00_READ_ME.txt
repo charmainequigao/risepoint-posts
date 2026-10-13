@@ -1,0 +1,18 @@
+RISEPOINT PH · READY-TO-SCHEDULE POSTS (Facebook + Instagram)
+Upload order = file order (01, 02, 03...). All feed images are 1080x1350 (4:5), correct for both IG and FB.
+
+Day  1 · Mon, Oct 19 · 10:00 AM · What a VA Actually Does · 7 image(s)
+Day  2 · Tue, Oct 20 · 10:00 AM · How VAs Get Paid · 7 image(s)
+Day  5 · Fri, Oct 23 · 6:00 PM · 4 Hours Can Be Enough · 1 image(s)
+Day  6 · Sat, Oct 24 · 10:00 AM · 5 VA Jobs That Hire Beginners · 6 image(s)
+Day  7 · Sun, Oct 25 · 6:00 PM · Your VA Questions, Answered · 7 image(s)
+Day  8 · Mon, Oct 26 · 10:00 AM · Learning Forever, Pitching Never · 1 image(s)
+Day 12 · Fri, Oct 30 · 6:00 PM · Job Post Decoder · 7 image(s)
+Day 13 · Sat, Oct 31 · 10:00 AM · Pangit Daw English Ko · 1 image(s)
+Day 14 · Sun, Nov 1 · 6:00 PM · Your First Portfolio · 7 image(s)
+Day 16 · Tue, Nov 3 · 10:00 AM · 7 Red Flags of a VA Course Scam · 9 image(s)
+Day 18 · Thu, Nov 5 · 10:00 AM · Your First Proposal Template · 7 image(s)
+Day 19 · Fri, Nov 6 · 6:00 PM · If You're Starting Today · 1 image(s)
+Day 23 · Tue, Nov 10 · 10:00 AM · 30-Day Beginner VA Roadmap · 8 image(s)
+Day 24 · Wed, Nov 11 · 6:00 PM · Starting While Employed · 1 image(s)
+Day 28 · Sun, Nov 15 · 6:00 PM · Free Tools Every Beginner VA Should Learn · 8 image(s)
